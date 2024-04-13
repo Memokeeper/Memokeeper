@@ -1,1 +1,1 @@
-![https://tenor.com/f6ghahjnBER.gif](https://media1.tenor.com/m/RSccOdpL2aMAAAAC/navia-genshin-impact.gif)
+![https://tenor.com/lKDj208hGdO.gif](https://media1.tenor.com/m/hvmswJz6XWoAAAAd/kujou-sara-genshin.gif)
