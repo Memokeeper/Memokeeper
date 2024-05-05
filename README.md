@@ -21,6 +21,14 @@ $${\color{#a91913}Sign \space my \space Guestbook}$$
  
 ╰┈➤ ┆┆ [Rentry](https://rentry.co/WhereTheLegendBegin)
 
+![](https://64.media.tumblr.com/79cbabf95176ba7ace9be4839f46e681/aab72ea29bb1a1dc-eb/s1280x1920/8b888f0fdd0a04353ea678dabe3864fb95a689c3.pnj)
+
+$${\color{#a91913}These\space Bitches\space gay \space Good\space for\space them,\space Good \space for \space them}$$
+
+![](https://media1.tenor.com/m/zsGsK_CeAp4AAAAC/asta-la-pasta.gif)
+
+![](https://64.media.tumblr.com/79cbabf95176ba7ace9be4839f46e681/aab72ea29bb1a1dc-eb/s1280x1920/8b888f0fdd0a04353ea678dabe3864fb95a689c3.pnj)
+
 ![](https://64.media.tumblr.com/d73c74ecf1036469e1899ecd1965d37f/c181a9c4428d618b-e9/s1280x1920/0f010bcc3a6cea1977175dc934a3091f822cd8bd.pnj)
 
 ![](https://64.media.tumblr.com/2553571df80992fd856a9a88d7b1f300/ee09abb08cabc6f1-4c/s540x810/0b3e08cceadabae4739765557bcf46274fa3e6b4.gifv)
